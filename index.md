@@ -1,5 +1,6 @@
 ## 歡迎來到Pizza Discord
-測試訊息
+邀請連結：https://discord.gg/xCzxdaahX7
+
 
 ### 特價
 
